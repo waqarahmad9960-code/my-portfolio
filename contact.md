@@ -1,4 +1,4 @@
-<<<<<<< HEAD
+waqar ahmad
 your code
 03028094266
 =======
